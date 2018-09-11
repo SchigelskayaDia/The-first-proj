@@ -1,2 +1,3 @@
-NAME:Schigelskaya Diana 
-9 gr, Specialty: design of electronic and web editions
+Schigelskaya Diana 
+9 gr
+Design of electronic and web editions
